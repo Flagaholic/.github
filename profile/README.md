@@ -1,4 +1,5 @@
 HK Based CTF Team :hong_kong:  
 Still new to the scene.  
 Recruiting team members across the World!  
-Feel free to apply / DM youtubeshort@Discord for joining us!
+Feel free to apply by clicking the Discord invite link,  
+or DM youtubeshort on Discord for joining us!
